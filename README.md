@@ -1,7 +1,7 @@
 ![](https://images.unsplash.com/photo-1451187580459-43490279c0fa?w=1200&h=400&fit=crop)
 
 # 🌐 2026海外代理IP推荐 | Socks5 · L2TP · 全球优质国际线路
-### 💾 【按 Ctrl+D 收藏本页，不迷路 · 持续更新】
+### 💾 【按 Ctrl+D 收藏本页，不迷路 · 持续更新中】
 
 ---
 
